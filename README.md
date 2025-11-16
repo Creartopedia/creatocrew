@@ -1,2 +1,0 @@
-# creatocrew
-Creativity for All !
